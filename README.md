@@ -65,7 +65,7 @@ Here are some examples of the project in action:
 
 First, the example of the pottery model
 
-https://youtu.be/NkbFiTU-9vA
+https://youtu.be/3GC5K1dsnk4
 
 Next, here is an example of me making an object
 
